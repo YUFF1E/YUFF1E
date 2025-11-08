@@ -7,4 +7,5 @@
 ⠀⠀⠀⠉⠙⠫⠤⠚⠉⠀⠀⠀⠀⠉⠓⠤⠝⠋⠉⠀⠀⠀
 
 
-<img width="500" height="220" alt="image" src="https://github.com/user-attachments/assets/dc6a67c0-5df6-46f7-8d99-cdeb04eb752e" />
+<img width="500" height="260" alt="image" src="https://github.com/user-attachments/assets/8cfe8f8f-6d9a-4025-863a-415e6c50cdac" />
+
