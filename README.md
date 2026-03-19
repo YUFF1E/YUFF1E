@@ -1,5 +1,6 @@
 
-<img width="500" height="250" alt="image" src="https://github.com/user-attachments/assets/c673ba1d-8d6e-49c3-af10-abaaebe7d67f" />
+<img width="736" height="481" alt="image" src="https://github.com/user-attachments/assets/12ec35f3-27d3-4568-900a-6f5877435b8f" />
+
 
   ˚ㅤ𝅄 I'vᥱ got mყ ᥱყᥱ oᥒ ყoᥙ 𝅄 𐚁̸ ࣪ㅤ𓈒 
    ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚ ۪
