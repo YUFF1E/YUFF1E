@@ -7,11 +7,7 @@
   ㅤㅤ"𝘛𝘩𝘪𝘴 𝘸𝘰𝘳𝘭𝘥 𝘪𝘴 𝘤𝘳𝘶𝘦𝘭, 𝘣𝘶𝘵 𝘐 𝘴𝘵𝘪𝘭𝘭 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶"ㅤ
 ㅤ
 ㅤ
-⡤⠒⢤⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡤⠒⢤
-⢣⡀⠀⠉⠲⢤⣀⡀⠀⠀⠀⠀⠀⠀⢀⣀⡤⠖⠉⠀⢀⡜
-⢸⡉⠒⠄⠀⠀⠀⢉⡙⢢⠀⠀⡔⢋⡉⠀⠀⠀⠠⠒⢉⡇
-⠀⠉⢖⠒⠀⠀⠀⣇⠀⣸⠀⠀⣇⠀⣸⠀⠀⠀⠒⡲⠉⠀
-⠀⠀⠀⠉⠙⠫⠤⠚⠉⠀⠀⠀⠀⠉⠓⠤⠝⠋⠉
+
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31qqclhl5tcyhx77ukgegsc52nhm&redirect=true">
