@@ -1,7 +1,7 @@
 <div align="center">
 <img width="254" height="254" alt="image" src="https://github.com/user-attachments/assets/dbbd7d04-742d-4b0d-97a7-06fc3b3e96b8" />
 
-<sub>[rentry](https://otsudayo.atabook.org/)⠀⠀[ata](https://rentry.co/otsumimimimi)⠀⠀</sub>
+<sub>[rentry](https://otsudayo.atabook.org/)⠀₊⊹⠀[ata](https://rentry.co/otsumimimimi)⠀⠀</sub>
 
 <div align="center"> 
 
