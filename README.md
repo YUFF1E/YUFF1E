@@ -1,13 +1,9 @@
+<div align="center">
+<img width="254" height="254" alt="image" src="https://github.com/user-attachments/assets/dbbd7d04-742d-4b0d-97a7-06fc3b3e96b8" />
 
-<img width="736" height="481" alt="image" src="https://github.com/user-attachments/assets/12ec35f3-27d3-4568-900a-6f5877435b8f" />
-ㅤ
-ㅤㅤㅤ
-ㅤㅤ
+<sub>[rentry](https://otsudayo.atabook.org/)⠀⠀[ata](https://rentry.co/otsumimimimi)⠀⠀</sub>
 
-  ㅤㅤ"𝘛𝘩𝘪𝘴 𝘸𝘰𝘳𝘭𝘥 𝘪𝘴 𝘤𝘳𝘶𝘦𝘭, 𝘣𝘶𝘵 𝘐 𝘴𝘵𝘪𝘭𝘭 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶"ㅤ
-ㅤ
-ㅤ
-
+<div align="center"> 
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31qqclhl5tcyhx77ukgegsc52nhm&redirect=true">
